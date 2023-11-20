@@ -6,9 +6,9 @@
 
 <p><a href="https://movie4kto.net/">https://movie4kto.net/</a></p>
 
-<p><a href="https://www.wcofun.tv/">https://www.wcofun.tv/</a></p>
+<p><a href="https://www.wcofun.tv/"><img src="https://www.wcofun.tv/logo.gif" /></a></p>
 
-<p><a href="https://soap2day.tf/home">https://soap2day.tf/home</a></p>
+<p><a href="https://soap2day.tf/home"><img alt="soap2day" src="https://soap2day.tf/assets/img/uploads/logo_soap.png" /></a></p>
 
 <p><a href="https://movie-web.app/search/series">https://movie-web.app/search/series</a></p>
 
