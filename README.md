@@ -6,6 +6,8 @@
 
 <p><a href="https://mhdtvworld.me/">https://mhdtvworld.me/</a></p>
 
+<p><a href="https://flixtrz.com/for-all-mankind/">https://movieuniverse.se/](https://flixtrz.com/for-all-mankind/</a></p>
+
 <p><a href="https://movie4kto.net/">https://movie4kto.net/</a></p>
 
 <p><a href="https://www.wcofun.tv/"><img src="https://www.wcofun.tv/logo.gif" /></a></p>
