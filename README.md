@@ -6,6 +6,8 @@
 
 <p><a href="https://www.desi-serials.cc/watch-online/star-plus/anupamaa/">Anupamaa</a>&nbsp;&nbsp;<a href="https://www.desi-serials.cc/watch-online/sab-tv/wagle-ki-duniya/">Wagle</a>&nbsp;<a href="https://www.desi-serials.cc/watch-online/sab-tv/taarak-mehta-ka-ooltah-chashmah-updateslatest/">Taarak Metha</a></p>
 
+<p><a href="https://desicinemas.tv/">https://desicinemas.tv/</a></p>
+
 <p><a href="https://www.desi-serials.cc/">https://www.desi-serials.cc/</a></p>
 
 <p><a href="https://mhdtvworld.me/">https://mhdtvworld.me/</a></p>
