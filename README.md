@@ -25,6 +25,11 @@
 <p><a href="https://aniwave.to/watch/jujutsu-kaisen-2nd-season.ll3x3/ep-14">https://aniwave.to/watch/jujutsu-kaisen-2nd-season.ll3x3/ep-14</a></p>
 
 <p><a href="https://movieuniverse.se/">https://movieuniverse.se/</a></p>
+<p>Index</p>
+
+<p><a href="https://fmhy.net/videopiracyguide">https://fmhy.net/videopiracyguide</a></p>
+
+<p><a href="https://everythingmoe.com/">https://everythingmoe.com/</a></p>
 
 <p><a href="https://dr-venture.com/apps/">https://dr-venture.com/apps/</a></p>
 
