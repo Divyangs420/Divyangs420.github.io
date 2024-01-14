@@ -22,6 +22,10 @@
 
 <p><a href="https://hd.cricfree.io">https://hd.cricfree.io</a></p>
 
+<p><a href="https://anix.to/anime/demon-slayer-kimetsu-no-yaiba-6q67/ep-1">https://anix.to/anime/demon-slayer-kimetsu-no-yaiba-6q67/ep-1</a></p>
+
+<p><a href="https://anix.to/home">https://anix.to/home</a></p>
+
 <p><a href="https://aniwave.to/watch/jujutsu-kaisen-2nd-season.ll3x3/ep-14">https://aniwave.to/watch/jujutsu-kaisen-2nd-season.ll3x3/ep-14</a></p>
 
 <p><a href="https://movieuniverse.se/">https://movieuniverse.se/</a></p>
