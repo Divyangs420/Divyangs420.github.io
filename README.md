@@ -14,15 +14,7 @@
 
 <p><a href="https://yrkkhdesiserial.su/"> desi serial/</a></p>
 
-<p><a href="https://mhdtvworld.me/">https://mhdtvworld.me/</a></p>
-
-<p><a href="https://movies.obinode.app/">https://movies.obinode.app/</a></p>
-
 <p><a href="https://flixtrz.com/for-all-mankind/">https://movieuniverse.se/](https://flixtrz.com/for-all-mankind/</a></p>
-
-<p><a href="https://movie4kto.net/">https://movie4kto.net/</a></p>
-
-<p><a href="https://www.wcofun.tv/"><img src="https://www.wcofun.tv/logo.gif" /></a></p>
 
 <p><a href="https://soap2day.tf/home"><img alt="soap2day" src="https://soap2day.tf/assets/img/uploads/logo_soap.png" /></a></p>
 
@@ -30,9 +22,9 @@
 
 <p><a href="https://flixtrz.com/">https://flixtrz.com/</a></p>
 
-<p><a href="https://hd.cricfree.io">https://hd.cricfree.io</a></p>
 
-<p><a href="https://anix.to/anime/demon-slayer-kimetsu-no-yaiba-6q67/ep-1">https://anix.to/anime/demon-slayer-kimetsu-no-yaiba-6q67/ep-1</a></p>
+
+<p>Anime</p>
 
 <p><a href="https://anix.to/home">https://anix.to/home</a></p>
 
@@ -50,6 +42,9 @@
 <p><a href="https://dr-venture.com/apps/">[https://dr-venture.com/apps/]https://hifi2007reviews.com/</a></p>
 
 <p>sports</p>
+
+<p><a href="https://hd.cricfree.io">https://hd.cricfree.io</a></p>
+
 <p><a href="https://latifistreams.com/motorsport">https://latifistreams.com/motorsport</a></p>
 <p>&nbsp;</p>
 
