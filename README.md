@@ -45,7 +45,7 @@
 
 <p><a href="https://hd.cricfree.io">https://hd.cricfree.io</a></p>
 
-<p><a href="https://latifistreams.com/motorsport">https://latifistreams.com/motorsport</a></p>
+<p><a href="https://streamed.su">https://streamed.su</a></p>
 <p>&nbsp;</p>
 
 <p><a href="https://sportsurge.io/"> https://sportsurge.io/</a></p>
