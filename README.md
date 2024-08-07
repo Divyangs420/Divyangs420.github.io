@@ -14,10 +14,6 @@
 
 <p><a href="https://yrkkhdesiserial.su/"> desi serial/</a></p>
 
-<p><a href="https://yrkkhdesiserial.su/"> desi serial/</a></p>
-
-<p><a href="https://www.desi-serials.cc/">https://www.desi-serials.cc/</a></p>
-
 <p><a href="https://mhdtvworld.me/">https://mhdtvworld.me/</a></p>
 
 <p><a href="https://movies.obinode.app/">https://movies.obinode.app/</a></p>
