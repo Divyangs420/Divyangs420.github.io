@@ -16,7 +16,7 @@
 
 <p><a href="https://flixtrz.com/for-all-mankind/">https://movieuniverse.se/](https://flixtrz.com/for-all-mankind/</a></p>
 
-<p><a href="https://soap2day.tf/home"><img alt="soap2day" src="https://soap2day.tf/assets/img/uploads/logo_soap.png" /></a></p>
+<p><a href="https://soap2day.tf/home"><img alt="soap2day" src="[https://soap2day.tf/assets/img/uploads/logo_soap.png](https://www.soap2day.tf/storage/upload/logo/soap2day.tf_frontend.png?v=1723030095)" /></a></p>
 
 <p><a href="https://movie-web.app/search/series">https://movie-web.app/search/series</a></p>
 
